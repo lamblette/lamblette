@@ -1,8 +1,10 @@
-<p align="center"> <img src="https://github.com/kokorikkaku/kakokyudance/assets/161214008/fcd57466-f983-43d0-9535-2c8e741044c2"/> </p>
+<p align="center"> <img src="https://github.com/kokorikkaku/kokorikkaku/assets/161214008/d34a6db8-3e4a-40a2-a254-fa2488677371"/> </p>
 <br>
 
-<p align="center"> <img src="https://github.com/kokorikkaku/kakokyudance/assets/161214008/ce912ba5-2e01-4e61-ae09-5fe617ca1667"/> </p>
+
+<p align="center"> <img src="https://github.com/kokorikkaku/kokorikkaku/assets/161214008/2cab9471-577c-4b22-b858-6874ab72aaa3"/> </p>
 <p align="center"> still a wip </p><br>
+
 　
 
-<p align="center"> <img src="https://github.com/kokorikkaku/kakokyudance/assets/161214008/fcd57466-f983-43d0-9535-2c8e741044c2"/> </p>
+<p align="center"> <img src="https://github.com/kokorikkaku/kokorikkaku/assets/161214008/f67304fe-3f00-4b60-80ea-fda0ca5da30f"/> </p>
