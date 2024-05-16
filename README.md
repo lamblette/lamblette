@@ -1,1 +1,1 @@
-<p align="center"> <img src="https://github.com/basementstar/45death/assets/161214008/296a9b49-e845-41b8-835d-8f8be2a748fc"> </p>
+<p align="center"> <img src="https://github.com/basementstar/basementstar/assets/161214008/578f02ae-7974-475d-ba53-0bd5477a0cee"> </p>
