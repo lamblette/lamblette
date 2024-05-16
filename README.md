@@ -1,8 +1,1 @@
-<p align="center"><img src="https://github.com/45death/45death/assets/161214008/da1516f2-1520-4351-a46d-bb26339c3f6d"></p>
-<p align="center"><img src="https://github.com/45death/45death/assets/161214008/ff1bfabe-e657-4934-8200-63696d846fc2"></p>
-<p align="center"> i don't even feel good about it anymore, </p>
-<p align="center">　　<b>dry talker</b>, emotionally <i>unstable</i> 　 ☓ 　 requited <b>hate</b> is my bestfriend.  </p>
-<p align="center">'cause you don't take the advice you fucking use me for.</p>
-<p align="center"><img src="https://github.com/45death/45death/assets/161214008/6a5e28c7-d5a9-4ec1-b7bd-55da1121324a"></p>
-
-
+<p align="center"> <img src="https://github.com/basementstar/45death/assets/161214008/296a9b49-e845-41b8-835d-8f8be2a748fc"> </p>
