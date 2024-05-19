@@ -1,3 +1,2 @@
 WWIPP!
-
-![nikolai-nikolai-gogol](https://github.com/basementstar/basementstar/assets/161214008/091fd500-cde9-442b-acb0-cf84d238757f)
+![nikolai-nikolai-gogol](https://github.com/THEGALLO/THEGALLO/assets/161214008/ec451095-efe0-495d-a046-723bc055b194)
