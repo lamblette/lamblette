@@ -1,2 +1,3 @@
 
-![er](https://github.com/zhelayupochemu/necromanticism/assets/161214008/387d4447-5083-4217-a3a3-33781cf8feb1)
+
+![Untitled393_20240621152354 (1)](https://github.com/zhelayupochemu/zhelayupochemu/assets/161214008/17aa89da-499f-4d82-80b2-7869fbc169ec)
