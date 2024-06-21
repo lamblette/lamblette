@@ -1,2 +1,2 @@
 
-![bungo-stray-dogs-bungo-stray-dogs-beast](https://github.com/necromanticism/mesmerizerr/assets/161214008/b2761ec2-65a4-4fe9-a3dd-1f869ef42972)
+![er](https://github.com/zhelayupochemu/necromanticism/assets/161214008/387d4447-5083-4217-a3a3-33781cf8feb1)
