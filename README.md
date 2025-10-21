@@ -7,4 +7,4 @@
 
 </p>
 
-<br>proshippers dni :( read [rentry](https://rentry.co/azaipodcast) bc i have something to say about them
+<br>read [rentry](https://rentry.co/azaipodcast) if u want
