@@ -6,5 +6,3 @@
 
 
 </p>
-
-<br>read [rentry](https://rentry.co/azaipodcast) if u want (there's not really info in this)
