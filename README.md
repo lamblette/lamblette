@@ -2,11 +2,12 @@
   <img src="https://komarev.com/ghpvc/?username=lamblette&color=lightgrey&style=plastic&base=670" alt="Profile views"/>
 </p>
 <p align="center">
-  <img width="435" height="442" alt="image (12)" src="https://github.com/user-attachments/assets/5ef7fec6-9fa5-417b-90f3-8ae41d6acac2" />
+<img width="435" height="402" alt="image (14)" src="https://github.com/user-attachments/assets/832f19fb-ac68-4226-b9a6-5dd40b998fd1" />
 
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/db135cc3-0545-49a4-bb9c-ac2e19615fdd">
+  <img src="https://github.com/user-attachments/assets/5793b9a0-5040-45f3-84f7-492e273cf2c2">
 </p>
+
 
