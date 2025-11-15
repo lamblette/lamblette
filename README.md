@@ -25,7 +25,7 @@
       <br>
          　　 $\color{#877a6c}{it/any~pronouns　akutagawa~c-link　ϑℓ}$
       <br>
-　         　　 $\color{#877a6c}{suspected　𓊈 MDD 𓊉　𓊈 aleixthymia 𓊉}$
+　         　　 $\color{#877a6c}{suspected　𓊈 MDD 𓊉　𓊈 alexithymia 𓊉}$
              <br>
              　         　　 $\color{#877a6c}{im~a~bit~dense~at~times~so~pls~be patient:(}$
                           <br>
