@@ -30,7 +30,7 @@
              　         　　 $\color{#877a6c}{im~a~bit~dense~at~times~so~pls~be~patient:(}$
                           <br>
 <br>
-      　         　　　　 $\color{#877a6c}{links　under　construction}$
+      　    
                           　         　　 
 
   </p>
